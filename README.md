@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sudipto11bhukta@gmail.com**
 
-- 📄 Know about my experiences [app.rezi.ai/s/F8JhoJHvtQuWlsUzpy4P](app.rezi.ai/s/F8JhoJHvtQuWlsUzpy4P)
+- 📄 Know about my experiences [Resume](https://app.rezi.ai/s/F8JhoJHvtQuWlsUzpy4P)
 
 - ⚡ Fun fact **I can find logics of a code at every random places**
 
